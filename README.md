@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project dealing in data analysis.
 - 📫 How to reach me on akimmusa68@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: Can you start a jiurney while sleeping.
+- ⚡ Fun fact: Can you start a journey while sleeping.
 
 <!---
 Abdikarimm/Abdikarimm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
